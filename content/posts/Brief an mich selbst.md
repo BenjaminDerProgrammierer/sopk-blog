@@ -8,7 +8,7 @@ tags:
 # Brief an mich selbst
 
 Hallo Benjamin, 
-wenn du das liest, hast du die 5. Klasse geschafft! Gratulation!
+wenn du das liest, hast du die 5. Klasse geschafft! Gratulation! (oder du bist von der Schule geflogen - Gratulation …)
 
 Ich hoffe, du hast in der Zwischenzeit keine Süchte entwickelt und dich gesund gehalten.
 
